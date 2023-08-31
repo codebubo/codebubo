@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @codebubo :owl:
+- 👀 I’m interested in making things go smoothly
+- 🌱 I'm continuously brushing up on skills and learning new ones
+- 📫 You reach me via my school's educational platform
